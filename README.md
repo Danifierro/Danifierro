@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Danifierro  
+- 👋 Hi, I’m @Danifierro i like gays
 - 👀 I’m interested in sex
 - 🌱 I’m currently learning porn
 - 💞️ I’m looking to collaborate on xvideos and pornhub
